@@ -1,4 +1,0 @@
-[Source of Text](https://github.com/scrollmapper/bible_databases_deuterocanonical)
-
-###### 1
-And it came to pass after this that his name during his lifetime was raised aloft to that Son of Man and to the Lord of Spirits from amongst those who dwell on the earth. [70:2] And he was raised aloft on the chariots of the spirit and his name vanished among them. [70:3] And from that day I was no longer numbered amongst them: and he set me between the two winds, between the North and the West, where the angels took the cords to measure for me the place for the elect and righteous. [70:4] And there I saw the first fathers and the righteous who from the beginning dwell in that place.
