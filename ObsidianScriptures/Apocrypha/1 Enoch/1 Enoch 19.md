@@ -1,0 +1,4 @@
+[Source of Text](https://github.com/scrollmapper/bible_databases_deuterocanonical)
+
+###### 1
+And Uriel said to me: 'Here shall stand the angels who have connected themselves with women, and their spirits assuming many different forms are defiling mankind and shall lead them astray into sacrificing to demons ⌈⌈as gods⌉⌉, (here shall they stand,) till ⌈⌈the day of⌉⌉ the great judgement in which they shall be judged till they are made an end of. [19:2] And the women also of the angels who went astray shall become sirens.' [19:3] And I, Enoch, alone saw the vision, the ends of all things: and no man shall see as I have seen.
