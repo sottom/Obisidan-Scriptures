@@ -1,4 +1,0 @@
-[Source of Text](https://github.com/scrollmapper/bible_databases_deuterocanonical)
-
-###### 1
-And Azâzêl taught men to make swords, and knives, and shields, and breastplates, and made known to them the metals 〈of the earth〉 and the art of working them, and bracelets, and ornaments, and the use of antimony, and the beautifying of the eyelids, and all kinds of costly stones, and all colouring tinctures. [8:2] And there arose much godlessness, and they committed fornication, and they were led astray, and became corrupt in all their ways. Semjâzâ taught enchantments, and root-cuttings, Armârôs the resolving of enchantments, Barâqîjâl, (taught) astrology, Kôkabêl the constellations, Ezêqêêl the knowledge of the clouds, 〈Araqiêl the signs of the earth, Shamsiêl the signs of the sun〉, and Sariêl the course of the moon. And as men perished, they cried, and their cry went up to heaven . . .

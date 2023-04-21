@@ -1,8 +1,0 @@
-
-
-10-2019
-[Link to Talk](https://www.churchofjesuschrist.org/study/general-conference/2019/10/sunday-morning-session?lang=eng)
-
-
-
-# References
