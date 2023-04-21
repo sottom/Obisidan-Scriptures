@@ -1,0 +1,4 @@
+[Source of Text](https://github.com/scrollmapper/bible_databases_deuterocanonical)
+
+###### 1
+When the Holy One, blessed be He, took me away from the generation of the Flood, he lifted me on the wings of the wind of Shekina to the highest heaven and brought me into the great palaces of the 'Araboth Raqia' on high, where are the glorious Throne of Shekina, the Merkaba, the troops of anger, the armies of vehemence, the fiery Shin'anim', the flaming Kerubim, and the burning 'Ophannim, the flaming servants, the flashing Chashmattim and the lightening Seraphim. And he placed me (there) to attend the Throne of Glory day after day.

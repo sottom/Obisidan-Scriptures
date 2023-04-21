@@ -1,0 +1,4 @@
+[Source of Text](https://github.com/scrollmapper/bible_databases_deuterocanonical)
+
+###### 1
+And I saw other lightnings and the stars of heaven, and I saw how He called them all by their names and they hearkened unto Him. [43:2] And I saw how they are weighed in a righteous balance according to their proportions of light: (I saw) the width of their spaces and the day of their appearing, and how their revolution produces lightning: and (I saw) their revolution according to the number of the angels, and (how) they keep faith with each other. [43:3] And I asked the angel who went with me who showed me what was hidden: 'What are these?' [43:4] And he said to me: 'The Lord of Spirits hath showed thee their parabolic meaning (lit. 'their parable'): these are the names of the holy who dwell on the earth and believe in the name of the Lord of Spirits for ever and ever.'
